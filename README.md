@@ -1,8 +1,6 @@
 # Citations
 # Je sais moi-même pas pourquoi j'en ai crées, mais autant qu'elles servent à la reflexion. 
 
- 
-- Les sentiments, aussi éphémères que permanents, ne sont que des freins à tes actions et tes ambitions.
 
 - Le + intelligent est le sage qui ne parle jamais plutôt que le singe qui, des logorrhées, en a trop fait.
 
